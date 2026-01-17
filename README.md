@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aaz1z
+- 👋 Hi, I’m @Aa
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on ...
